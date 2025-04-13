@@ -6,7 +6,7 @@
 
 ---
 
-## 🔽 [Download Now](https://www.dheerajparat.github.io/DBrowserdownload-)  
+## 🔽 [Download Now](https://dheerajparat.github.io/DBrowserdownload-/)  
 Click the button above from your phone to view the page and download the app.
 
 ---
